@@ -33,7 +33,7 @@ Here in Edmonton, I use the same approach with both outdoor and indoor spaces.
 
 * **What it is:** A large open park with fresh air and green grass.
 * **Why train here:** Xingyi forms are best practiced in a wide open space so you do not feel cramped, and sparring drills involve moving back and forth a lot, so having plenty of room is great.
-* **Best for:** Spring, summer, and fall classes.
+* **Best for:** Spring, summer, and fall classes on dry days.
 
 ---
 
