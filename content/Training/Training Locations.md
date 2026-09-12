@@ -53,7 +53,7 @@ When the weather is bad or cold, we train in my home basement.
 * **Setup:** 
   * Padded floor mats to protect knees and joints.
   * Wall pads for punch and power release (**Fajin / 發勁**) practice.
-  * Mirrors for checking your posture.
+  * Suitable for basic breakfall practice.
 
 ---
 
