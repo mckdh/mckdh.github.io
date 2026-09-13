@@ -4,7 +4,7 @@ title: "Training Locations & Spaces"
 
 # 🥋 Training Locations & Spaces
 
-Most martial arts schools train only indoors. But traditional internal martial arts (Neijiaquan) has always been practiced outdoors in nature.
+Most martial arts schools train indoors. But at the Korea Xingyiquan Research Association, my master taught us to train outdoors as much as possible.
 
 ---
 
