@@ -48,12 +48,7 @@ Here in Edmonton, I use the same approach with both outdoor and indoor spaces.
 
 ## 🏠 3. Indoor Space: Home Basement Studio
 
-When the weather is bad or cold, we train in my home basement.
-
-* **Setup:** 
-  * Padded floor mats to protect knees and joints.
-  * Wall pads for punch and power release (**Fajin / 發勁**) practice.
-  * Suitable for basic breakfall practice.
+When the weather is bad or cold, we train in my home basement. It is an unfinished basement and not fancy, but it is a proper space for a few people to train. We have wall mats to practice power release (Fajin / 發勁), and we can practice takedowns (Shuai / 摔) and breakfalls that are hard to do outdoors.
 
 ---
 
